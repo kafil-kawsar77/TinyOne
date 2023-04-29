@@ -1,2 +1,2 @@
 # TinyOne
-https://kafil-kawsar.github.io/TinyOne/
+https://kafil-kawsar77.github.io/TinyOne/
